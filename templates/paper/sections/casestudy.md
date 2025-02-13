@@ -1,0 +1,2 @@
+Para mí lo que hace que una acción sea correcta o incorrecta tiene que ver con los efectos que esta produzca ya que una acción buena siempre tendrá beneficios y la incorrecta siempre trae cosas malas.
+Para determinar quién es responsable quien es el responsable de una acción hay varios factores como por ejemplo en el caso de Ashley madison el mayor culpable son los hackers ya que lo que hicieron los hackers es ilegal y fue con una mala intención.
